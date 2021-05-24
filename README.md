@@ -8,3 +8,4 @@
 - 📫 Mail me whenever u wish like (jk, I am not gonna write my email here, can't trust for spammers)
 - 😄 I believe that life is fun maybe
 - ⚡ Fun fact: I love my life not as much as u do
+<img src="https://cdn.dribbble.com/users/273277/screenshots/2245136/eye.gif" width="30px">
